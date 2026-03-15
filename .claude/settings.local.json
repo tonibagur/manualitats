@@ -1,0 +1,25 @@
+{
+  "permissions": {
+    "allow": [
+      "WebSearch",
+      "WebFetch(domain:www.youtube.com)",
+      "WebFetch(domain:www.google.com)",
+      "WebFetch(domain:html.duckduckgo.com)",
+      "WebFetch(domain:www.thesprucecrafts.com)",
+      "WebFetch(domain:www.instructables.com)",
+      "WebFetch(domain:www.reddit.com)",
+      "WebFetch(domain:creativefabrica.com)",
+      "WebFetch(domain:www.gathered.how)",
+      "WebFetch(domain:www.handimania.com)",
+      "WebFetch(domain:www.craftsy.com)",
+      "WebFetch(domain:search.brave.com)",
+      "WebFetch(domain:www.bing.com)",
+      "WebFetch(domain:www.pequeocio.com)",
+      "WebFetch(domain:www.manualidadesinfantiles.org)",
+      "WebFetch(domain:www.pinterest.es)",
+      "WebFetch(domain:manualidades.facilisimo.com)",
+      "WebFetch(domain:www.ecosia.org)",
+      "WebFetch(domain:www.mojeek.com)"
+    ]
+  }
+}
