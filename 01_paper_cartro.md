@@ -65,6 +65,26 @@ Només temes puntuats 3 o més.
 
 ---
 
-## Maquetes i diorames de cartró (puntuació: 3)
+## Maquetes i diorames de cartró (puntuació: 4)
 
-*Pendent de cercar més recursos*
+### YouTube
+
+- [COMO HACER UN DIORAMA - MAQUETA — DIY Marshel Craft](https://www.youtube.com/watch?v=yQyBLydzgeo) — Tutorial complet per fer un diorama/maqueta pas a pas
+- [Como Hacer un DIORAMA de Cartón — Arte en el Cole](https://www.youtube.com/watch?v=UARLaHkR_F0) — Diorama de cartró, ideal per projectes escolars
+- [Como hacer una MAQUETA fácil con cartón y papel — Artenur](https://www.youtube.com/watch?v=RwwThp7_170) — Maqueta fàcil amb materials bàsics
+- [Taller Dioramas en Cajas de Zapatos — Cultura Valparaíso](https://www.youtube.com/watch?v=tHU0joYdkps) — Taller complet per fer diorames dins caixes de sabates
+- [TALLER INFANTIL - DIORAMA CON CAJA DE ZAPATOS — Guitarvera](https://www.youtube.com/watch?v=vXTq-7N_48E) — Taller infantil de diorames amb caixa de sabates
+- [Como hacer una Maqueta con cascada / DIORAMA — DIY Marshel Craft](https://www.youtube.com/watch?v=qrTL-yPhKNc) — Maqueta amb cascada i riu, molt visual
+- [MAQUETA DE CIUDAD Fácil de hacer — DIY Marshel Craft](https://www.youtube.com/watch?v=ISJrCaygjuQ) — Maqueta de ciutat fàcil de fer
+- [Como Hacer Casas Para Maquetas en Cartón — El Canal de las Manualidades](https://www.youtube.com/watch?v=mUKdaq9Msoo) — Tècniques per construir cases en miniatura
+- [Como Hacer una Maqueta de Casa de Cartón Paso a Paso — El Canal de las Manualidades](https://www.youtube.com/watch?v=XPmTrgVs3mM) — Casa de cartró pas a pas, molt detallat
+- [COLUMNAS ROMANAS de cartón para dioramas — miguel angel](https://www.youtube.com/watch?v=PugIakzO_2k) — Tècnica per fer columnes romanes, bona per detalls
+- [Como hacer un Diorama — DICSociales Edu](https://www.youtube.com/watch?v=3Js3fFwoU5k) — Tutorial educatiu sobre com fer diorames
+
+### Blogs i webs
+
+- [Qué es un diorama: tipos, historia y cómo crear uno — Orienta21](https://www.orienta21.com/que-son-las-dioramas/) — Guia completa amb 7 passos de construcció, menciona cartró com a base
+- [Qué es un diorama? Definición, ideas y ejemplos — Educapeques](https://www.educapeques.com/recursos-para-el-aula/diorama.html) — Guia educativa amb tipus de diorames i exemples
+- [Iniciación al diorama — MedievALL](https://medievall.es/dioramas/) — Introducció per principiants: caixes de sabates, materials reciclats, terreny
+- [Ideas de manualidades con cartón — Archzine](https://archzine.es/manualidades/manualidades-con-carton-para-pequenos-y-adultos/) — Galeria visual de projectes amb cartró: cases, castells, decoració
+- [Cómo hacer un diorama: 10 Pasos — wikiHow](https://es.wikihow.com/hacer-un-diorama) — Tutorial pas a pas amb imatges, molt accessible per nens
