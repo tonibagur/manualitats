@@ -185,4 +185,22 @@ Categoria estrella! Quasi tot puntuació 4 o 5.
 
 ## Joieria amb materials reciclats (puntuació: 3)
 
-*Pendent de cercar més recursos en propera sessió de cerca*
+### YouTube
+
+- [5 PULSERAS con MATERIAL RECICLADO — Idea Tú Mismo](https://www.youtube.com/watch?v=e1qpoqcIAvs) — 5 polseres diferents amb materials reciclats, curt i directe
+- [Bisutería fácil con cosas recicladas que tienes en casa — Vive Mas](https://www.youtube.com/watch?v=3xw-eN4N4bs) — Bisuteria amb coses que ja tens a casa
+- [Aretes, Collar y Pulsera con papel de revistas — YoCubanaDIY](https://www.youtube.com/watch?v=XCrb1WQnNvo) — Arracades, collaret i polsera amb paper de revistes reciclat
+- [20 Pulseras hechas con Material Reciclado — Ecobrisa](https://www.youtube.com/watch?v=SB_XfCJm7d8) — 20 idees de polseres reciclades, molt inspirador
+- [Pendientes con materiales reciclados — Atrapa Una Idea](https://www.youtube.com/watch?v=b8g-Vj2th2Y) — Arracades amb materials reciclats pas a pas
+- [CONVIERTE ANILLAS de lata EN LINDAS PULSERAS — HaunterMake](https://www.youtube.com/watch?v=lDZY1ptdjaw) — Polseres amb anelles de llaunes, molt creatiu
+- [PULSERAS hechas con BOTELLAS de PLÁSTICO — INNOVA manualidades](https://www.youtube.com/watch?v=WduK5SWWK_A) — Polseres amb ampolles de plàstic reciclades
+- [Como hacer aretes con botellas de plástico — Ecobrisa](https://www.youtube.com/watch?v=rO121sTPcXk) — Arracades amb ampolles de plàstic, resultats molt bònics
+
+### Blogs i webs
+
+- [Cómo hacer abalorios de papel — Pequeocio](https://www.pequeocio.com/como-hacer-abalorios-papel/) — Tutorial complet per fer comptes amb paper reciclat: tallar, enrotllar, envernissar
+- [Joyas recicladas para regalar — Manualidades Infantiles](https://www.manualidadesinfantiles.org/joyas-recicladas-para-regalar) — Joies amb caixes, xapes i pedres decoratives
+- [Pulseras con chapas de refresco — Manualidades Infantiles](https://www.manualidadesinfantiles.org/pulseras-con-chapas-de-refresco) — Polseres amb anelles de llaunes, econòmic i ecològic
+- [Pulsera con botella reciclada — Manualidades Infantiles](https://www.manualidadesinfantiles.org/pulsera-con-botella-reciclada) — Transforma ampolles en polseres que semblen professionals
+- [Collar con botellas de plástico reciclado — Manualidades Infantiles](https://www.manualidadesinfantiles.org/collar-botellas-plastico) — Comptes originals amb ampolles per muntar collarets
+- [Pulsera de cuentas de papel — Manualidades Infantiles](https://www.manualidadesinfantiles.org/pulsera-de-cuentas-de-papel) — Polsera amb comptes de paper de regal reciclat
