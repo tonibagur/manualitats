@@ -69,7 +69,7 @@ Puntua cada tema del 1 al 5:
 - [X] 3.10 Claus i pins decoratius — _puntuació:4_
 - [X] 3.11 Diademes i complements pel cabell — _puntuació:5_
 - [X] 3.12 Clauers personalitzats — _puntuació:5_
-- [X] 3.13 Joieria amb materials reciclats — _puntuació:3_
+- [X] 3.13 Joieria amb materials reciclats — _puntuació:4s_
 - [X] 3.14 Micro-macramé (polseres i collarets) — _puntuació:5_
 
 ## 4. PINTURA / DIBUIX / IL·LUSTRACIÓ
@@ -89,7 +89,7 @@ Puntua cada tema del 1 al 5:
 - [X] 4.13 Pouring art (pintura abocada, fluid art) — _puntuació:3_
 - [X] 4.14 Splatter / Action painting — _puntuació:1_
 - [X] 4.15 Pintura sobre pedres — _puntuació:1_
-- [X] 4.16 Pintura sobre vidre — _puntuació:2_
+- [X] 4.16 Pintura sobre vidre — _puntuació:4sF_
 - [X] 4.17 Pintura sobre fusta — _puntuació:2_
 - [X] 4.18 Pintura sobre tela / Canvas art — _puntuació:3_
 - [X] 4.19 Face painting / Body painting — _puntuació:1_

@@ -10,9 +10,30 @@ Només temes puntuats 3 o més de les categories 6-10.
 
 ---
 
-## 7.4 Pintura sobre vidre (puntuació: 3)
+## 7.4 Pintura sobre vidre (puntuació: 4)
 
-*Pendent de cercar més recursos*
+### YouTube
+
+- [Aprende como dibujar/pintar en vidrio/cristal — ArteMaster](https://www.youtube.com/watch?v=AeUgmh06re0) — Tutorial complet en castellà de pintura sobre vidre
+- [COMO PINTAR SOBRE VIDRIO - VIDRIERA DE LA BELLA Y LA BESTIA — YourCreativeChannel](https://www.youtube.com/watch?v=vAGLw0ZQTk8) — Vidriera inspirada en la Bella i la Bèstia, tema molt atractiu per nens
+- [TECNICA SENCILLA PARA PINTAR VIDRIO — Michelle Garres](https://www.youtube.com/watch?v=sAQgMOxxxF0) — Tècnica senzilla i ràpida (5 min)
+- [Como pintar en vidrio fácil y sencillo — Pinta Bonito (Roxana Botta)](https://www.youtube.com/watch?v=bD9at92znY8) — Tutorial fàcil i recent (2025)
+- [Tips para pintar sobre vidrio (frascos, botellas) — Instituto Almazul](https://www.youtube.com/watch?v=2mSn6UEUVss) — Consells pràctics per pintar pots i ampolles
+- [COMO PINTAR FRASCOS DE VIDRIO CON PINTURA VITRAL — Go Green](https://www.youtube.com/watch?v=xavuhbamoX0) — Pintura vitral sobre pots reciclats
+- [CÓMO PINTAR BOTELLAS DE VIDRIO - 3 IDEAS FÁCILES — Pintura & Arte con Moni](https://www.youtube.com/watch?v=cPRWIzszNsc) — 3 tècniques fàcils pas a pas
+- [DIY DECORACIÓN - Vasos personalizados — Dare to DIY](https://www.youtube.com/watch?v=UHqAIEccves) — Com personalitzar vasos pintant cristall
+
+### Blogs i webs
+
+- [Pintar sobre cristal o vidrio — Pintura y Artistas](https://www.pinturayartistas.com/pintar-sobre-cristal-o-vidrio/) — Visió general de materials i tècniques de pintura sobre vidre
+- [Pintar en vidrio — Facilísimo](https://manualidades.facilisimo.com/pintar-en-vidrio) — Recopilació de tècniques decoratives i idees de reciclatge
+- [Qué tipo de pintura se usa para pintar vidrio — Devitro Europa](https://devitroeuropa.com/que-tipo-de-pintura-se-usa-para-pintar-el-vidrio/) — Guia dels diferents tipus de pintura per a vidre
+- [Cómo pintar vidrio: 15 pasos — wikiHow](https://es.wikihow.com/pintar-vidrio) — Tutorial il·lustrat amb 15 passos detallats
+
+### Botigues
+
+- [Pintura vitral — Casa Piera (Barcelona)](https://casapiera.com/es/83-pintura-vitral) — Botiga de belles arts a Barcelona, pintures per a vidre i rotuladors
+- [Pintura cristal o vidrio — MYBA (Manualidades y Bellas Artes)](https://manualidadesybellasartes.es/pintura-cristal-o-vidrio-5146) — Window Color, esmalts, contorns de relleu i materials per a vidre
 
 ---
 
