@@ -175,7 +175,7 @@ Puntua cada tema del 1 al 5:
 - [X] 11.1 Premsatge de flors (flors premsades) — _puntuació:3_
 - [X] 11.2 Quadres amb flors seques — _puntuació:2_
 - [X] 11.3 Corones de flors / Flower crowns — _puntuació:1_
-- [X] 11.4 Terrariums — _puntuació:1_
+- [X] 11.4 Terrariums — _puntuació:4_
 - [X] 11.5 Kokedama (boles de molsa) — _puntuació:1_
 - [X] 11.6 Jardineria creativa / Decorar testos — _puntuació:1_
 - [X] 11.7 Land art (art amb elements naturals) — _puntuació:3_
