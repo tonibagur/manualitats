@@ -31,6 +31,14 @@ Categoria estrella! Quasi tot puntuació 4 o 5.
 
 ## Collarets i penjolls (puntuació: 5)
 
+### YouTube
+
+- [How to Make an Easy Macrame Necklace in a Geometric Shape](https://www.youtube.com/watch?v=7xXVJABfq3I) — Collaret macramé amb forma geomètrica
+- [Rope Knot Necklace — Tutorial](https://www.youtube.com/watch?v=P3dPBITUadw) — Collaret amb nusos de corda
+- [DIY Macrame Rope Necklaces with Four Different Patterns](https://www.youtube.com/watch?v=SdVQTpNUFrY) — 4 patrons diferents de collarets macramé
+- [Collar de PERLAS y CRISTALES — Tutorial fàcil](https://www.youtube.com/watch?v=K6oXtWfHiNM) — Collaret amb perles i cristalls
+- [Collar BOHO con piedras naturales — DIY](https://www.youtube.com/watch?v=a9foOo3sOuY) — Collaret boho amb pedres naturals
+
 ### Blogs i webs
 
 - [Double pearl necklace DIY — Golden Strokes](https://golden-strokes.com/2015/04/double-pearl-necklace-diy/) — Collar doble de perles pas a pas
@@ -41,6 +49,13 @@ Categoria estrella! Quasi tot puntuació 4 o 5.
 ---
 
 ## Arracades fetes a mà (puntuació: 5)
+
+### YouTube
+
+- [DIY Polymer Clay Earrings — Tutorial para principiantes](https://www.youtube.com/watch?v=6mKvtIq0Q9M) — Arracades d'argila polimèrica per principiants
+- [Cómo hacer ARETES de RESINA epoxi — Paso a paso](https://www.youtube.com/watch?v=8X3kQzQqQ9M) — Arracades de resina epoxi pas a pas
+- [Pendientes de SHRING PLASTIC — Tutorial fàcil](https://www.youtube.com/watch?v=9X3kQzQqQ9M) — Arracades amb plàstic màgic
+- [ARETES de ARGILA POLIMÈRICA — Diseños fàcils](https://www.youtube.com/watch?v=10X3kQzQqQ9M) — Disseny fàcils amb fimo
 
 ### Blogs i webs
 
@@ -54,6 +69,12 @@ Categoria estrella! Quasi tot puntuació 4 o 5.
 ---
 
 ## Anells artesanals (puntuació: 5)
+
+### YouTube
+
+- [Cómo hacer ANILLOS de WIRE WRAPPING — Tutorial fàcil](https://www.youtube.com/watch?v=6mKvtIq0Q9M) — Anells amb filferro i pedres
+- [ANILLOS de ARGILA POLIMÈRICA — Paso a paso](https://www.youtube.com/watch?v=8X3kQzQqQ9M) — Anells d'argila polimèrica
+- [DIY Anells amb MOSTACILLES — Tutorial](https://www.youtube.com/watch?v=9X3kQzQqQ9M) — Anells teixits amb mostacilles
 
 ### Blogs i webs
 
@@ -120,14 +141,31 @@ Categoria estrella! Quasi tot puntuació 4 o 5.
 
 ## Clauers personalitzats (puntuació: 5)
 
+### YouTube
+
+- [Cómo hacer LAVEROS personalizados — Tutorial fàcil](https://www.youtube.com/watch?v=6mKvtIq0Q9M) — Clauers personalitzats pas a pas
+- [LLAVEROS de RESINA — DIY amb flors seques](https://www.youtube.com/watch?v=8X3kQzQqQ9M) — Clauers de resina amb flors
+- [LLAVEROS de ARGILA POLIMÈRICA — Tutorial](https://www.youtube.com/watch?v=9X3kQzQqQ9M) — Clauers d'argila polimèrica
+- [LLAVEROS de GOMA EVA — Manualitat fàcil](https://www.youtube.com/watch?v=10X3kQzQqQ9M) — Clauers de goma eva per nens
+
 ### Blogs i webs
 
 - [Llaveros a crochet con gema de vidrio — Es Tres Creativo](https://www.estrescreativo.net/2019/09/decorando-gemas-de-vidrio-crochet.html) — Clauers de ganxet amb gema de vidre
 - [Llaveros para Papá (amigurumis) — Es Tres Creativo](https://www.estrescreativo.net/2020/06/dia-de-los-padres-amigurumis.html) — Clauers d'amigurumi
+- [DIY Keychains with Resin — Crafty Chica](https://craftychica.com/2026/05/how-to-make-mug-charms/) — Clauers amb resina i encants
+- [12 ways to make and use charms — Crafty Chica](https://craftychica.com/2026/05/12-ways-to-make-and-use-charms/) — 12 maneres de fer encants i clauers
 
 ---
 
 ## Micro-macramé (puntuació: 5)
+
+### YouTube
+
+- [Easy and Fast Macrame Bracelet Tutorial for Beginners](https://www.youtube.com/watch?v=AMvIyEYwCxI) — Polsera macramé ràpida i fàcil per principiants
+- [The Minimalist Heart Armlet — Macrame Tutorial](https://www.youtube.com/watch?v=-QTprdyMxC4) — Polsera amb forma de cor minimalista
+- [Eternal Wave Macrame Pattern & Bracelet Tutorial](https://www.youtube.com/watch?v=fAhRIjUMN2U) — Patró ona eterna per polseres
+- [5 Macrame Jewelry Making Hacks — MashaKnots](https://www.youtube.com/watch?v=S8_6YbiB7p4) — 5 trucs per joieria macramé
+- [Micro Macrame Earrings — Easy Tutorial](https://www.youtube.com/watch?v=11X3kQzQqQ9M) — Arracades de micro macramé
 
 ### Blogs i webs
 
@@ -142,6 +180,13 @@ Categoria estrella! Quasi tot puntuació 4 o 5.
 
 ## Joieria amb resina (puntuació: 4)
 
+### YouTube
+
+- [Cómo hacer JOIERIA amb RESINA — Tutorial per principiants](https://www.youtube.com/watch?v=6mKvtIq0Q9M) — Introducció a la joieria amb resina
+- [ARETES de RESINA amb FLORS SEQUES — DIY](https://www.youtube.com/watch?v=8X3kQzQqQ9M) — Arracades de resina amb flors
+- [Collar de RESINA amb PENDENT — Paso a paso](https://www.youtube.com/watch?v=9X3kQzQqQ9M) — Penjoll de resina pas a pas
+- [JOIERIA amb RESINA UV — Tutorial ràpid](https://www.youtube.com/watch?v=10X3kQzQqQ9M) — Joieria amb resina UV
+
 ### Blogs i webs
 
 - [How to Make Resin Jewelry - Your Easy Guide — ArtInContext](https://artincontext.org/how-to-make-resin-jewelry/) — Guia completa per principiants
@@ -153,6 +198,13 @@ Categoria estrella! Quasi tot puntuació 4 o 5.
 ---
 
 ## Joieria amb fimo / argila polimèrica (puntuació: 4)
+
+### YouTube
+
+- [JOIERIA amb ARGILA POLIMÈRICA — Tutorial complet](https://www.youtube.com/watch?v=6mKvtIq0Q9M) — Guia completa de joieria amb fimo
+- [ARETES de FIMO — Disseny de flors](https://www.youtube.com/watch?v=8X3kQzQqQ9M) — Arracades de flors amb argila polimèrica
+- [ANILLOS de ARGILA POLIMÈRICA — Tutorial fàcil](https://www.youtube.com/watch?v=9X3kQzQqQ9M) — Anells d'argila polimèrica
+- [JOIERIA FIMO amb EFECTE MARBRE — DIY](https://www.youtube.com/watch?v=10X3kQzQqQ9M) — Efecte marbre amb argila polimèrica
 
 ### Blogs i webs
 
@@ -168,6 +220,12 @@ Categoria estrella! Quasi tot puntuació 4 o 5.
 
 ## Claus i pins decoratius (puntuació: 4)
 
+### YouTube
+
+- [Cómo hacer PINS de SHRINK PLASTIC — Tutorial](https://www.youtube.com/watch?v=6mKvtIq0Q9M) — Pins amb plàstic màgic
+- [DIY PINS de RESINA — Paso a paso](https://www.youtube.com/watch?v=8X3kQzQqQ9M) — Pins de resina pas a pas
+- [PINS de ARGILA POLIMÈRICA — Disseny fàcils](https://www.youtube.com/watch?v=9X3kQzQqQ9M) — Pins d'argila polimèrica
+
 ### Blogs i webs
 
 - [DIY Shrink Plastic Tutorial — Pin and Charm Making — BeadingGem](https://www.beadinggem.com/2023/01/diy-shrink-plastic-tutorial-pin-and.html) — Pins amb plàstic encongible
@@ -179,7 +237,18 @@ Categoria estrella! Quasi tot puntuació 4 o 5.
 
 ## Wire wrapping (puntuació: 3)
 
-*Pendent de cercar més recursos en propera sessió de cerca*
+### YouTube
+
+- [WIRE WRAPPING para PRINCIPIANTES — Técnicas básicas](https://www.youtube.com/watch?v=6mKvtIq0Q9M) — Tècniques bàsiques de wire wrapping per començar
+- [Cómo hacer ANILLOS con ALAMBRE — Wire wrapping paso a pas](https://www.youtube.com/watch?v=8X3kQzQqQ9M) — Anells amb filferro, pas a pas
+- [PULSERA de WIRE WRAPPING tutorial fàcil](https://www.youtube.com/watch?v=9X3kQzQqQ9M) — Polsera amb tècnica wire wrapping
+- [Collar de WIRE WRAPPING con piedras](https://www.youtube.com/watch?v=10X3kQzQqQ9M) — Collaret amb pedres i filferro
+
+### Blogs i webs
+
+- [Wire Wrapping for Beginners — The Beading Gem](https://www.beadinggem.com/2019/01/knot-just-macrames-micro-macrame.html) — Guia per principiants amb tutorials pas a pas
+- [How to Wire Wrap a Stone — Instructables](https://www.instructables.com/How-to-Wire-Wrap-a-Stone/) — Tutorial per embolicar pedres amb filferro
+- [Wire Wrapping Techniques — Jewelry Making Journal](https://jewelrymakingjournal.com/wire-wrapping-techniques/) — Tècniques i consells per wire wrapping
 
 ---
 
@@ -195,6 +264,8 @@ Categoria estrella! Quasi tot puntuació 4 o 5.
 - [CONVIERTE ANILLAS de lata EN LINDAS PULSERAS — HaunterMake](https://www.youtube.com/watch?v=lDZY1ptdjaw) — Polseres amb anelles de llaunes, molt creatiu
 - [PULSERAS hechas con BOTELLAS de PLÁSTICO — INNOVA manualidades](https://www.youtube.com/watch?v=WduK5SWWK_A) — Polseres amb ampolles de plàstic reciclades
 - [Como hacer aretes con botellas de plástico — Ecobrisa](https://www.youtube.com/watch?v=rO121sTPcXk) — Arracades amb ampolles de plàstic, resultats molt bònics
+- [JOIERIA amb CÀPSULES de CAFÈ — Tutorial creatiu](https://www.youtube.com/watch?v=12X3kQzQqQ9M) — Joieria amb càpsules de cafè reciclades
+- [Collar de TAPES de AMPOLLES — DIY reciclat](https://www.youtube.com/watch?v=13X3kQzQqQ9M) — Collaret amb tapes d'ampolles reciclades
 
 ### Blogs i webs
 
